@@ -1,2 +1,2 @@
-# repo-1
-para el profe reison xd
+hola soy @ottocristobo
+como contactarme ottocristobo024@gmail.com
